@@ -13,3 +13,5 @@
 
 ![2](https://user-images.githubusercontent.com/81641823/113042088-6da29380-91a3-11eb-83e9-eb6814be0c99.png)
 
+
+Что-то неполучается? Мой твиттер @Domenokidi
